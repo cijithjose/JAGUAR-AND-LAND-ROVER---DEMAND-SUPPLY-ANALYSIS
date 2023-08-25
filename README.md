@@ -6,3 +6,4 @@
 ![image](https://github.com/cijithjose/JAGUAR-AND-LAND-ROVER---DEMAND-SUPPLY-ANALYSIS/assets/98333115/42f0ef42-367c-4b92-822d-8f11821596c6)
 ![image](https://github.com/cijithjose/JAGUAR-AND-LAND-ROVER---DEMAND-SUPPLY-ANALYSIS/assets/98333115/024af419-c99f-4b55-9cf1-d15651620df0)
 ![image](https://github.com/cijithjose/JAGUAR-AND-LAND-ROVER---DEMAND-SUPPLY-ANALYSIS/assets/98333115/59cf1614-0fbc-4d3d-a8b2-926f18838803)
+![image](https://github.com/cijithjose/JAGUAR-AND-LAND-ROVER---DEMAND-SUPPLY-ANALYSIS/assets/98333115/acc47058-1b7b-418c-b028-c7b9aa088f2c)
